@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sonal-bansal-11
-- 👀 I’m interested in working with like minded people and create anzaming projects together.
+- 👀 I’m interested in working with like minded people and create amazing projects together.
 - 🌱 I’m currently learning Java and web development.
 - 💞️ I’m looking to collaborate on ideas💡
 - 📫 How to reach me 
