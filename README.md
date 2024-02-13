@@ -2,7 +2,7 @@
 - 👀 I’m interested in working with like minded people and create amazing projects together.
 - 🌱 I’m currently learning Java and web development.
 - 💞️ I’m looking to collaborate on ideas💡
-- 📫 How to reach me 
+- 📫 How to reach me-Instagram id:@sonal_56
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm a curious and fun person to work with.I like to think out of the box for my projects.
 
